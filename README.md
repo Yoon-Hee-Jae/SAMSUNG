@@ -66,4 +66,6 @@ Pain point
 
 # [결과물]
 
+![1](https://github.com/user-attachments/assets/6eb87f80-c36e-447b-892f-0139901de5cd)
+![2](https://github.com/user-attachments/assets/1c291a3e-1197-4f2c-a7b7-38283defdad4)
 
